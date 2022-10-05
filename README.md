@@ -1,3 +1,3 @@
-- 👋 Hi, I’m  Edilaine, professora de matemática.
-- 👀 I’m interested in  aprender e trocar experiencias na area do Pensamento Computacional e  áreas afins
+- 👋 Oi, sou Edilaine, professora de matemática.
+- 👀 Estou interessada em  aprender e trocar experiencias na area do Pensamento Computacional e  áreas afins
 - Para me encontar, edilaineaplic@gmail.com
